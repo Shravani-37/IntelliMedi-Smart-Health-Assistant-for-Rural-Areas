@@ -1,0 +1,1 @@
+# IntelliMedi-Smart-Health-Assistant-for-Rural-Areas
